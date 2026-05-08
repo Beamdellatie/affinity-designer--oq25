@@ -1,4 +1,4 @@
-
+best Brushes for Affinity Designer for macOS - export to SVG and content-aware fill is the best Affinity Designer for macOS brush, featuring export to SVG and content-aware fill.
 
 
 
